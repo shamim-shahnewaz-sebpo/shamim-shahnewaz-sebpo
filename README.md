@@ -1,5 +1,5 @@
 ### **Md. Shamim Shahnewaz** <br />
-**_Assistant Project Manager_** <br />
+**_Project Manager_** <br />
 **_Software Development_** <br />
 **_ServicEngineBPO_** <br />
 **_Email : shamim.shahnewaz@sebpo.com_** <br />
